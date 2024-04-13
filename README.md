@@ -1,0 +1,1 @@
+Don José Muanda Nkole wa Yahve est Docteur en Droit. Spécialiste en Droit des affaires OHADA et Droit public des affaires. Il est Avocat spécialiste des questions de droit pénal des affaires et de droit des affaires OHADA, europeen et Droit du commerce international. 
